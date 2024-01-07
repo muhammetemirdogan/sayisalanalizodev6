@@ -1,0 +1,2 @@
+# sayisalanalizodev6
+sayisalanaliz
